@@ -1218,3 +1218,63 @@ La sabiduría consiste en reconciliar esas dos voces hasta que sean una sola.
 > Hacerle caso es, en realidad, recordar quiénes somos y dejar que la existencia nos guíe sin resistencia.**
 
 ---
+
+### El absurdo de la carne
+
+Somos carne. Toda carne respira, late, se mueve, desea, y teme. Carne que se viste y se adorna, carne que trabaja y se arrastra,
+carne que duerme, que se reproduce, que envejece, que muere. La carne se enorgullece de sus logros, se toma fotos, se compara, se odia, se idolatra.
+Y aunque la carne cambie de forma, de nombre o de tono, jamás deja de ser carne.
+
+El ego —esa voz que la carne inventó para sentirse importante—
+es el gran engañador: le susurra a la carne que es más que carne, que es espíritu, que es elegida, que es superior.
+Pero la carne, por más que lo crea, sigue siendo lo mismo: una masa de fibras, fluidos y electricidad,
+que vibra un instante y luego se disuelve en silencio.
+
+La carne se saluda y se nombra: “señor”, “señora”, “joven”, “amigo”, “pareja”,
+pero fuera de la ficción, fuera del teatro del lenguaje,
+solo se está diciendo: **carne vieja**, **carne joven**, **carne conocida**, **mi carne**.
+Toda relación es carne tocando carne, carne observando carne, carne deseando carne,
+carne consumiendo carne. Y lo más absurdo de todo: carne llorando por carne.
+
+La carne crea ciudades, fronteras, templos y sistemas de poder.
+Construye monumentos para glorificarse, máquinas para explotarse,
+y guerras para devorarse entre sí. Se arrodilla ante sí misma y llama a eso “Dios”.
+Se autoproclama civilización, progreso, cultura. Pero si se imaginara todo desde fuera,
+como simples trozos de carne interactuando, golpeándose, reproduciéndose, hablando, luchando, rezando,
+esa imagen sería más realista que toda la ficción que hemos llamado **humanidad**.
+
+La carne cree que ama, pero muchas veces solo teme estar sola.
+Cree que busca la verdad, pero solo busca una justificación para su miedo.
+Cree que piensa, pero en realidad solo reacciona, se defiende, se alimenta de su propia ansiedad.
+Todo lo que la carne hace gira en torno a su conservación: su hambre, su deseo, su miedo a pudrirse.
+
+La carne que mata, la carne que reza, la carne que juzga, todas comparten la misma ilusión:
+que hay un sentido más allá de sí mismas. Pero el sentido no pertenece a la carne.
+La carne es un vehículo, un instrumento, una forma pasajera de algo que observa,
+pero incluso esa observación está atrapada dentro de la carne.
+
+El absurdo no está en la muerte, sino en la **pretensión de eternidad**. 
+La carne quiere perdurar, pero todo en ella tiende a descomponerse.
+La carne ama el calor, pero teme el fuego. Ama la vida, pero devora la vida.
+Llora su sufrimiento, aunque es ella quien lo crea. Ese es su ciclo sagrado y su condena:
+**la carne perpetuando el dolor de la carne, continuando su reproducción, llamando a eso historia, evolución, destino.**
+
+La experiencia —solo la experiencia— parece real,
+pero incluso esa pureza está contaminada por el deseo de la carne: por su búsqueda de placer, por su miedo a desaparecer,
+por su necesidad de significado. Nada tiene sentido fuera de la experiencia,
+y sin embargo la experiencia misma está corrompida por la ilusión de la carne.
+
+La carne teme mirarse sin nombres, sin títulos, sin máscara.
+Si pudiera hacerlo, vería la verdad más simple y brutal: **solo carne moviéndose entre carne,
+pretendiendo ser algo más.** Y en esa pretensión radica el mayor absurdo de todos:
+la carne queriendo escapar de sí misma, construyendo templos, filosofías, civilizaciones,
+para olvidar lo que realmente es.
+
+Somos carne, carne que teme, que ama, que crea y destruye,
+carne que busca sentido en un universo que no responde.
+Carne que se adora y se desprecia, que se eleva y se arrastra.
+Carne que se pudre lentamente mientras imagina que asciende.
+Carne que inventa el alma para soportar su fragilidad.
+Y al final, cuando la carne se deshace, queda solo el eco de su absurdo que desaparece en segundos:
+la nada mirando a la nada.
+
