@@ -154,6 +154,15 @@ Debemos **dejar que la vida actúe.**
 
 ---
 
+### Hacer caso a la vida
+
+Hacer caso a la vida es también **hacerse caso a uno mismo**.
+Es seguir los propios presentimientos, observar el sufrimiento y reconocer las malas actitudes, errores e imperfecciones.
+Solo así puede hallarse **claridad** y tomar decisiones auténticas que conduzcan a una vida más digna, reduciendo el sufrimiento y la autoviolencia que hoy llamamos “autoexigencia” o “productividad”.
+Escuchar la vida es escucharse; y escucharse es el primer acto de libertad.
+
+---
+
 ## 🧍‍♂️ Punto 1: “Estamos atrapados en el mundo de la carne”
 
 ### 🔹 Significado general
