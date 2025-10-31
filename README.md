@@ -992,7 +992,7 @@ El sabio lo entiende y fluye; el inconsciente lucha y sufre.
 ### 🔹 7. La redención a través de la observación
 
 Todo el texto —y este punto en particular— insiste en que **la observación consciente es la puerta de salida**.
-No se trata de moralizar ni de reprimir los impulsos, sino de **verlos sin juzgar, verlor sin necesidad de actuar inmediatamente y esperar que desaparezca**.
+No se trata de moralizar ni de reprimir los impulsos, sino de **verlos sin juzgar, verlo sin necesidad de actuar inmediatamente y esperar que desaparezca**.
 
 Cuando uno observa sus deseos, sus contradicciones, su sombra, algo se transforma por sí solo.
 La consciencia purifica lo que toca.
